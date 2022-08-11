@@ -1,4 +1,4 @@
-## Welcome to GitHub | my | Pages
+## Welcome to GitHub "my" Pages
 
 
 
